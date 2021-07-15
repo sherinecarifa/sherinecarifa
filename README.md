@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sherinecarifa
+- 👀 I’m interested in design and business
+- 🌱 I’m currently learning Interior Architecture
+- 💞️ I’m looking to collaborate on small business and internship
+- 📫 How to reach me, LinkedIn: Sherine Arifayahya, or instagram/line:sherinecarifa
